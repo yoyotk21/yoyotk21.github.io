@@ -1,3 +1,3 @@
 # Joel Kalai
 
-Please hire me.
+I know stuff. Please hire me.
