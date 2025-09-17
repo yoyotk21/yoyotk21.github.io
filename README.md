@@ -1,3 +1,3 @@
 # Joel Kalai
 
-I know stuff. Please hire me.
+I know stuff, especially about AI. 
